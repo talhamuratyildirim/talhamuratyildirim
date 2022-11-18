@@ -9,7 +9,7 @@
 
  📫 How to reach me **yildirimtalha.yt@gmail.com**
 
- ⚡ Fun fact **A "BIG" Japan fan**
+ ⚡ Fun fact **a "BIG" Japan fan**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
